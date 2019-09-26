@@ -10,6 +10,6 @@
 -----
 
 
-完成题目有困难？不妨来看看[写代码啦的相应课程](https://xiedaimala.com/tasks/9bf0fb20-929d-4e17-891a-4673291d74a0)吧！
+完成题目有困难？不妨来看看[写代码啦的相应课程](https://xiedaimala.com/tasks/a758bf2b-c250-4346-9ee6-1c0ba4e798dd)吧！
 
 回到[写代码啦的题目](https://xiedaimala.com/tasks/9bf0fb20-929d-4e17-891a-4673291d74a0/quizzes/1b0fc390-74ad-4f55-b355-90b8a9154cc5)，继续挑战！ 
